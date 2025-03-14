@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **mehnazali2004@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1QAt3MGOsqWBC6REuDvnvSZ14twQWyPWN/view?usp=drive_link](https://drive.google.com/file/d/1QAt3MGOsqWBC6REuDvnvSZ14twQWyPWN/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1QAt3MGOsqWBC6REuDvnvSZ14twQWyPWN/view?usp=drive_link](https://drive.google.com/file/d/1NZ3SkgYnWsySqiC7vupOQAvMGZ-JXP60/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
